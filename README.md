@@ -4,7 +4,7 @@ Info do churrastekken, os lugares escolhidos aqui ficaram no Guarujá ao invés 
 
 A votação acabou ficando quase tudo empatado então os dias escolhidos ficaram <b>Janeiro, dia 29 até dia 31</b> ou <b>Fevereiro, dia 5 até dia 7</b>.
 
-Lembrando que é importante confirmar o mais rápido possivel para poder fazer a reserva e manter esse preço porque é alta temporada lá e pode aumentar se demorarmos para fechar.
+Lembrando que é importante confirmar o mais rápido possivel para poder fazer a reserva e manter esse preço porque é alta temporada lá e pode aumentar se demorarmos para fechar. Pode entrar em contato comigo no grupo ou no privado mesmo se quiser confirmar ou checar algum detalhe.
 
 ## Opção 1
 Apartamento com piscina privada - 5 quartos, 5 camas, 4 banheiros
