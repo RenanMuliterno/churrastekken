@@ -40,6 +40,8 @@ Apartamento cobertura Guarujá - 3 quartos, 4 camas, 3 banheiros
 
 Vou mentir não mas esse foi o meu preferido, chave demais.
 
+Mais info [aqui](https://www.airbnb.com.br/rooms/1071995020876186540?check_in=2027-01-29&adults=10&source_impression_id=p3_1790254740_P3yWnjbMbPPIWGRs&scroll_to_review=1669007707825292457&review_page_entrypoint=show_more&guests=1&check_out=2027-01-31).
+
 <div style="display: flex; overflow-x: auto; scroll-snap-type: x mandatory; gap: 10px;">
   <img width="2560" height="3413" alt="sala" src="https://github.com/user-attachments/assets/dce30354-dee7-4bc3-9515-a3ca1610dfe3" />
   <img width="1440" height="1920" alt="sala2" src="https://github.com/user-attachments/assets/4010ce22-4568-4455-8f2d-c5efde96efdd" />
