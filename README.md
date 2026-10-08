@@ -1,4 +1,5 @@
-# churrastekken
+<img width="1408" height="768" alt="churras tekken" src="https://github.com/user-attachments/assets/7e577b92-55c4-4810-8d0a-a76d28b85172" />
+
 Info do churrastekken, os lugares escolhidos aqui ficaram no Guarujá ao invés de Santos porque com as mulheres/namoradas o total de pessoas aumenta bastante e minha mãe tem um apartamento lá que podemos alugar mais barato e aí fica mais fácil. E Santos fica bem perto, só pegar a balsa e ir na casa do Nilvio Seto.
 
 A votação acabou ficando quase tudo empatado então os dias escolhidos ficaram <b>Janeiro, dia 29 até dia 31</b> ou <b>Fevereiro, dia 5 até dia 7</b>.
