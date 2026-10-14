@@ -7,7 +7,7 @@ Finalmente consegui um lugar que aceite tontos ~~RIP Cobertura~~.
 ### [Triplex no Guarujá](https://www.airbnb.com.br/rooms/732462979245694689?source_impression_id=p3_1792014578_P3m2WZrb6lVJaW2l) - Jan 29 até 31
 Preço total 2.475 então fica 247 p/ pessoa, mais barato do que a cobertura que tinha visto antes. Na casa vamos ter 4 quartos (todos com ar-condicionado), 7 camas, 4 banheiros, um lavabo e até uma banheira e fica bem perto da praia.
 
-Fica em um condomínio com garagem privada e 4 vagas então podemos ficar tranquilos com carros.
+Fica em um condomínio com garagem privada e 4 vagas então podemos ficar tranquilos com carros. Avenida Almirante Tamandaré, 180, 11440-470
 
 <img width="1440" height="960" alt="sala" src="https://github.com/user-attachments/assets/9068d5df-3ba4-488e-8a35-9ee1568f6126" />
 <img width="1440" height="960" alt="externa" src="https://github.com/user-attachments/assets/4c3f8e52-0889-4fa5-a726-e385d866e1da" />
