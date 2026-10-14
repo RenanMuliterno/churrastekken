@@ -4,7 +4,7 @@
 
 Finalmente consegui um lugar que aceite tontos ~~RIP Cobertura~~.
 
-### Triplex no Guarujá - Jan 29 até 31
+### [Triplex no Guarujá](https://www.airbnb.com.br/rooms/732462979245694689?source_impression_id=p3_1792014578_P3m2WZrb6lVJaW2l) - Jan 29 até 31
 Preço total 2.475 então fica 247 p/ pessoa, mais barato do que a cobertura que tinha visto antes. Na casa vamos ter 4 quartos (todos com ar-condicionado), 7 camas, 4 banheiros, um lavabo e até uma banheira e fica bem perto da praia.
 
 Fica em um condomínio com garagem privada e 4 vagas então podemos ficar tranquilos com carros.
@@ -18,3 +18,8 @@ Fica em um condomínio com garagem privada e 4 vagas então podemos ficar tranqu
 
 #### Localização
 <img width="880" height="722" alt="local" src="https://github.com/user-attachments/assets/568663d7-0b67-434c-a4ad-68509f5140ac" />
+
+
+#### Dramatização do Evento
+Cursed demais mas nossos especialistas recriaram como pode ser o evento no dia para criarmos expectativas.
+<img width="1195" height="896" alt="churrastekken dramatizado" src="https://github.com/user-attachments/assets/79bcbff3-0259-4425-921a-97e194468dd7" />
